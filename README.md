@@ -1,8 +1,9 @@
-## Hi there 👋
+## Olá aqui quem fala e o games eduuuu
 
-<!--
-**PouSakana/PouSakana** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+
+
 ![](https://media1.tenor.com/m/H-Mkm2nMKYkAAAAC/spiderman-fortnite.gif)
 
+Aqui veremos o aprendizado basico que toda mulher deve saber;
+![](https://media1.tenor.com/m/8rdQTM8NisEAAAAd/washing-the-dishes-mimi.gif)
